@@ -3,7 +3,7 @@
 **[Read more about Shadowclan and Shadowclan history](shadowclan.org)**
 
 **Shadowclan Forums**
-
+-  *dead link*
 
 **Shadowclan Orcs**
 -  Ravenholdt, World of Warcraft
@@ -19,6 +19,7 @@
 
 **Shadowclan Wiki**
 -  Learn and contribute
+-  -  *dead link*
 
 
 
