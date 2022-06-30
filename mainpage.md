@@ -6,19 +6,19 @@
 
 
 **Shadowclan Orcs**
-Ravenholdt, World of Warcraft
+  Ravenholdt, World of Warcraft
 
 **Shadowclan Sith**
-Jung Ma, Star Wards: The Old Republic
+  Jung Ma, Star Wards: The Old Republic
 
 **Shadowclan Greenskins**
-Badlands, Warhammer Online
+  Badlands, Warhammer Online
 
 **Shadowclan [Twitter](https://twitter.com/shadowclan/)**
-Be a follower
+  Be a follower
 
 **Shadowclan Wiki**
-Learn and contribute
+  Learn and contribute
 
 
 
