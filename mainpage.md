@@ -3,11 +3,23 @@
 #### Read [more about Shadowclan and Shadowclan history](shadowclan.org)
 
 ## Shadowclan Forums
+
+
 ## Shadowclan Orcs
+Ravenholdt, World of Warcraft
+
 ## Shadowclan Sith
+Jung Ma, Star Wards: The Old Republic
+
 ## Shadowclan Greenskins
+Badlands, Warhammer Online
+
 ## Shadowclan [Twitter](https://twitter.com/shadowclan/)
+Be a follower
+
 ## Shadowclan Wiki
+Learn and contribute
 
 
-###### 1997-2022 copywrite C Shadowclan.org
+
+1997-2022 copywrite C Shadowclan.org
